@@ -1,1 +1,2 @@
-# the-beginning-after-the-end
+# The Beginning After the End
+Le roi Grey possède une force, une richesse et un prestige inégalés dans un monde régi par les capacités martiales. Cependant, la solitude suit de près les détenteurs de grands pouvoirs. Sous l’apparence glamour d’un roi puissant se cache la coquille de l’homme, dépourvue de but et de volonté. Réincarné dans un nouveau monde rempli de magie et de monstres, le roi a une seconde chance de revivre sa vie. Corriger les erreurs de son passé ne sera cependant pas son seul défi. Sous la paix et la prospérité du nouveau monde se cache un courant sous-jacent qui menace de détruire tout ce pour quoi il a travaillé, remettant en question son rôle et la raison pour laquelle il est né de nouveau.
